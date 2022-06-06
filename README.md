@@ -1,1 +1,1 @@
-                                                           SPEECH TO TEXT CONVERSION
+                                                            SPEECH TO TEXT CONVERSION
